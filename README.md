@@ -1,0 +1,2 @@
+# thecapitalist.github.io
+economy
